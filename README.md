@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Software development
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me contact me via email
-- 😄 Pronouns: ...
-- ⚡ Fun fact: hhhhhhhhhhhhhh
+- 😄 Pronouns😍
+- ⚡ Fun fact: 😋😋
 
 <!---
 shyaka11/shyaka11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
